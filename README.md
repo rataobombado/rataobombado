@@ -1,4 +1,3 @@
 olá meu nome é *Nelson Zanotin* meu professor é o Bruno perna de pau*joga nada*
 
-![](https://media.tenor.com/Uzt7bfVX9LkAAAAd/blocking-ball-international-olympic-committee250days.gif).
-
+![](https://media.tenor.com/uTDkMkofYw8AAAAd/haitian-haiti.gif)
